@@ -1,2 +1,0 @@
-# skins
-osu! skins folder
