@@ -21,7 +21,7 @@
 <a href="https://drive.google.com/file/d/1jobklNmYcnqGWPy7RZ6TnoToyd0qf1p2/view?usp=drive_link"><img src="https://i.imgur.com/puwdQRE.jpg" alt="image"></a></h2>
 
 <h2><a href="https://drive.google.com/file/d/1ETkD5u_srKgQtfNF6c2qBMH5vTtqIcvv/view?usp=drive_link">- # Mathi</a> </br>
-<a href="https://drive.google.com/file/d/1ETkD5u_srKgQtfNF6c2qBMH5vTtqIcvv/view?usp=drive_link"><img src="https://i.imgur.com/S5tUOZi.jpg" alt="image"></a></h2>
+<a href="https://drive.google.com/file/d/1UzO24jJ6x-MYXgNjvk15HanTO2oZCJOq/view?usp=drive_link"><img src="https://i.imgur.com/S5tUOZi.jpg" alt="image"></a></h2>
 
 <h2><a href="https://drive.google.com/file/d/1KzxLg36I2IlVIm2F5KFnvxubLERovjrn/view?usp=drive_link">- # Mathi (ninerik)</a> </br>
 <a href="https://drive.google.com/file/d/1KzxLg36I2IlVIm2F5KFnvxubLERovjrn/view?usp=drive_link"><img src="https://i.imgur.com/BBg1Y3S.jpg" alt="image"></a></h2>
