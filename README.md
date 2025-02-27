@@ -3,7 +3,6 @@
 <h2> <p align="center">Other links:</p>
 <ul>
   <li><a href="https://osu.ppy.sh/users/9322480">osu!</a></li>
-  <li><a href="https://discord.gg/mBQDgSvpfv">Discord server</a></li>
   <li><a href="https://x.com/SonGokuPL_">Twitter/X</a></li>
   <li><a href="https://www.twitch.tv/songokupl_">Twitch</a></li>
   <li><a href="https://bit.ly/GokuSkins">GDrive with all skins</a></li>
