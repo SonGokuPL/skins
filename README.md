@@ -10,23 +10,14 @@
 </h2>
 
 
-<h2><a href="https://drive.google.com/file/d/1mFJGclojMZXj7xbSfzZ5sbbu-l7YqSE2/view?usp=drive_link">- # Aristia (Aireu)</a> <br>
-<a href="https://drive.google.com/file/d/1mFJGclojMZXj7xbSfzZ5sbbu-l7YqSE2/view?usp=drive_link"><img src="https://i.imgur.com/GVWmx15.jpg" alt="image"></a></h2>
+<h2><a href="https://drive.google.com/file/d/1ks2n2HdG_Echc7o1voAXXpb2gfCfgvn-/view?usp=drive_link">- # Aristia (maliszewski)</a> - pretty much for everything <br>
+<a href="https://drive.google.com/file/d/1ks2n2HdG_Echc7o1voAXXpb2gfCfgvn-/view?usp=drive_link"><img src="https://i.imgur.com/UMW4ovw.jpg" alt="image"></a></h2>
 
-<h2><a href="https://drive.google.com/file/d/1ABVKA5drEVFnuzu7R98mvjDll4CXjieO/view?usp=drive_link">- # criller (azerino)</a> </br>
+<h2><a href="https://drive.google.com/file/d/1ABVKA5drEVFnuzu7R98mvjDll4CXjieO/view?usp=drive_link">- # criller (azerino)</a> - hd skin </br>
 <a href="https://drive.google.com/file/d/1ABVKA5drEVFnuzu7R98mvjDll4CXjieO/view?usp=drive_link""><img src="https://i.imgur.com/qI3BijR.jpg" alt="image"></a></h2>
 
-<h2><a href="https://drive.google.com/file/d/1czB_4y2T-mme-8dIKDNhed5y69QYUBWj/view?usp=drive_link">- # emisu</a> </br>
-<a href="https://drive.google.com/file/d/1czB_4y2T-mme-8dIKDNhed5y69QYUBWj/view?usp=drive_link"><img src="https://i.imgur.com/I4t08lK.jpg" alt="image"></a></h2>
-
-<h2><a href="https://drive.google.com/file/d/1jobklNmYcnqGWPy7RZ6TnoToyd0qf1p2/view?usp=drive_link">- # hyeok2044 ez</a> </br>
+<h2><a href="https://drive.google.com/file/d/1jobklNmYcnqGWPy7RZ6TnoToyd0qf1p2/view?usp=drive_link">- # hyeok2044 ez</a> - reading skin</br>
 <a href="https://drive.google.com/file/d/1jobklNmYcnqGWPy7RZ6TnoToyd0qf1p2/view?usp=drive_link"><img src="https://i.imgur.com/puwdQRE.jpg" alt="image"></a></h2>
 
-<h2><a href="https://drive.google.com/file/d/1ETkD5u_srKgQtfNF6c2qBMH5vTtqIcvv/view?usp=drive_link">- # Mathi</a> </br>
-<a href="https://drive.google.com/file/d/1UzO24jJ6x-MYXgNjvk15HanTO2oZCJOq/view?usp=drive_link"><img src="https://i.imgur.com/S5tUOZi.jpg" alt="image"></a></h2>
-
-<h2><a href="https://drive.google.com/file/d/1KzxLg36I2IlVIm2F5KFnvxubLERovjrn/view?usp=drive_link">- # Mathi (ninerik)</a> </br>
-<a href="https://drive.google.com/file/d/1KzxLg36I2IlVIm2F5KFnvxubLERovjrn/view?usp=drive_link"><img src="https://i.imgur.com/BBg1Y3S.jpg" alt="image"></a></h2>
-
-<h2><a href="https://drive.google.com/file/d/1wukuJ9UOrDf5WJ09ioXSisxZPX9noa3X/view?usp=drive_link">- # Rafis (Mathi)</a> </br>
-<a href="https://drive.google.com/file/d/1wukuJ9UOrDf5WJ09ioXSisxZPX9noa3X/view?usp=drive_link"><img src="https://i.imgur.com/uXR59tr.jpg" alt="image"></a></h2>
+<h2><a href="https://drive.google.com/file/d/19jTKoPzzM4BkN0q8Vtu3ELde6790xAzL/view?usp=drive_link">- # Rafis (maliszewski)</a> - dt skin</br>
+<a href="https://drive.google.com/file/d/19jTKoPzzM4BkN0q8Vtu3ELde6790xAzL/view?usp=drive_link"><img src="https://i.imgur.com/w3Hsz7w.jpg" alt="image"></a></h2>
